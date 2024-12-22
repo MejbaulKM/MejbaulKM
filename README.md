@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning Many things
 - 💞️ I’m looking to collaborate on Company
 - 📫 How to reach me ...
-- 😄 Pronouns: Chinese name:- 林 梅兹鲍尔 , English name :-mejbaul, Bangla name:- মেজবাউল.
+- 😄 Pronouns: Chinese name:- 林 梅兹鲍尔 , English name :-mejbaul, 
 - ⚡ Fun fact: making new thing
 - 📧 E-mail :- tasinchina@proton.me 
 - ©️ Copyright act @2024-2028 
