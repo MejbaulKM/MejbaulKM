@@ -1,5 +1,5 @@
 -   Hello World! 🌍 Welcome to MejbaulKM GitHub!
-🍕 Powered by Tea and pizza soft drinks, the ultimate coding fuel combo! ☕🍕🥤
+🍕 Powered by Tea and pizza, soft drinks, the ultimate coding fuel combo! ☕🍕🥤
 - 👋 Hi, I’m @MejbaulKM
 - 👀 I’m interested in IT World
 - 🌱 I’m currently learning Many things
