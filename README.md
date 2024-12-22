@@ -7,8 +7,8 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: Chinese name:- 林 梅兹鲍尔 , English name :-mejbaul, Bangla name:- মেজবাউল.
 - ⚡ Fun fact: making new thing
-- 
-- Copyright act @2024-2028 
+- 📧 E-mail :- tasinchina@proton.me 
+- ©️ Copyright act @2024-2028 
 
 <!---
 MejbaulKM/MejbaulKM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
